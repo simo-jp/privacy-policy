@@ -49,4 +49,4 @@
 
 本プライバシーポリシーに関するご質問やお問い合わせは、以下までご連絡ください。
 
-メール: [simo.engineer.work@gmail.com]
+フォーム: [https://forms.gle/FhoSMRh5A3N55cgWA]
